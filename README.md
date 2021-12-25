@@ -16,17 +16,17 @@ Survival and possible better life for future generations
 * Many more initiatives are out there but none of them have what it takes to make a real difference.
 * No matter where i look everything mankind is doing right now is overall making things worse...
 
-###### What do we really need.
+## What do we really need.
 
 We need a better system but we will need everybody onboard and balance things out.
 
-###### What could a real solution bring us.
+## What could a real solution bring us.
 
 * Less time spending on working
 * More quality time
 * Better life and protection for humans, animals, plants etc.
 * Clean environment
 
-###### What can u do?
+## What can u do?
 
 Check back here soon since this should have reached and interested everyone!
