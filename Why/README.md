@@ -16,3 +16,13 @@ This means that everyone has the same oppertunities and where we can actually cr
 Don't let future generations become slaves of the current powers and systems, let them become free and create a better world.
 
 Unite and work on this (or any similar) project before it's actually to late!
+
+
+P.s.
+
+I'm the kind of person who doesn't like to be in the spotlight, this means...
+
+* I won't respond on any questions that have nothing todo with this project
+* I don't do interviews (unless they are with current world leaders, hahaha)
+* I don't accept money for this project
+* In other words (leave me alone) 
